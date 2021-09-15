@@ -1,1 +1,22 @@
-Replace this with a list of your favorite things.
+Just a bunch of nerd birds here. We love:
+- Chickens 🐓
+- Ducks 🦆
+- Gardening 🌻
+- Coding 
+- Maker Projects, like:
+  - Raspberry Pi Projects like:
+    - RetroPie
+    - Chicken Cams
+    - Flight Trackers
+    - Smart Mirrors
+    - Automated Gadgets
+  - DIY stuff for Chickens & Ducks & such, like:
+    - Gravity Feeders
+    - Solar powered coop gadgets 🌞
+    - Rain barrel systems
+    - Sweet duck pond ideas 🦆 
+    - Sustainable feed systems
+    - Chicken playground ideas 
+    - Coop ideas
+    - Building things on the cheap (cheep, cheep - haha)
+- 🐔 chicken jokes🐤 LOL
