@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Nerdbird Farm on TikTok](https://www.tiktok.com/@nerdbirdfarm)
