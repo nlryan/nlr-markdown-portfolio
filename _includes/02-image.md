@@ -1,1 +1,2 @@
-![Image of Backyard Pekin Duck](https://www.backyardduck.com/wp-content/uploads/2014/01/pekinduck.jpg)
+![Image of Backyard Pekin Duck](http://skateprof.com/images/samuel.jpg)
+![Image of Backyard Pekin Duck](http://skateprof.com/images/gary.jpg)
